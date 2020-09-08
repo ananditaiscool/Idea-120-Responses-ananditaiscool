@@ -6,7 +6,7 @@ walk backwards in space and time when you ask me too
 watch as they tangle me at the feet of my message 
 i always have the words to finish our story
 
-![Youtube](https://www.youtube.com/watch?v=S3pOuAvVjFA)
+- automatic![Youtube](https://www.youtube.com/watch?v=S3pOuAvVjFA)
 
 ![image 1](https://cosmosmagazine.com/wp-content/uploads/2020/02/180216-lizard-full-2048x1360.jpg)
 
