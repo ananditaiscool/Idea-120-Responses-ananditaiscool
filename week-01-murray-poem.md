@@ -10,7 +10,7 @@ https://www.youtube.com/watch?v=S3pOuAvVjFA - automatic!
 [Youtube](https://www.youtube.com/watch?v=S3pOuAvVjFA)
 
 https://www.pinterest.com/pin/391179917631690823/
-[image 1](https://www.pinterest.com/pin/391179917631690823/)
+![image 1](https://cosmosmagazine.com/wp-content/uploads/2020/02/180216-lizard-full-2048x1360.jpg)
 
 https://www.rawpixel.com/image/2307396/free-illustration-png-cartoon-media-connect
 [image 2] (https://www.rawpixel.com/image/2307396/free-illustration-png-cartoon-media-connect)
